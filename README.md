@@ -3,7 +3,7 @@
 - 🌱 I’asdm curdgfrently learning ...asd
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...qw
-jdfhfgh
+jdfhfghsa
 x
 viktormosejcuk6/viktormosejcuk6 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can clinm,ck the Preview link to take a look at your changes.
