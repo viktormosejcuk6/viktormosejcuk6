@@ -1,7 +1,7 @@
-[p[p[q- 👋 Hi, I’mdfs @viktormosejcuk6hjv,
-- 👀 I’m interested in ...
+[p[p[q- 👋 Hi, I’mdfs @tuiviktormosejcuk6hjv,
+- 👀 I’m interested in ...gklj
 - 🌱 I’asdm curdgfrently learning ...asd
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m lsdfooking to collaborate on ...
 - 📫 How to reach me ...qw
 jdfhfghsavxc
 xcvx
