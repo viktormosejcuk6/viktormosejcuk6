@@ -1,8 +1,8 @@
-[p[p[q- 👋 Hi, I’mdfs @tuiviktormosejcuk6hjv,
+x[p[p[q- 👋 Hi, I’mdfs @tuiviktormosejcuk6hjv,
 - 👀 I’m ixczcnterested in ...gkljc
 - 🌱 I’asdm curdgfrently learcxvning .ascxz..asd
-- 💞️ I’zxcm lsdfooking to collaborate on ...
-- 📫 How to reach mexcv ...qwcxzasd
+- 💞️ I’zxcm lsdfooking tcxzcollaborate on ...
+- 📫 How to reach mexcv ...qwcxzxzcxzcasd
 jdfhfghsavxccxvxbv
 xcvx
 viktormosejcuk6/viktormosexjcuzcxk6 is a ✨ speciagbfl ✨ repository because its `README.md` (this file) appears on your GitHub profile.
