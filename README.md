@@ -1,6 +1,6 @@
 x[p[p[q- 👋 Hi, I’mdfs @tuiviktormosejcuk6hjv,
 - 👀 I’m ixczcnterested in ...gkljc
-- 🌱 I’asdm curdgfrently learcxvning .ascxz..asd
+- 🌱 I’asdm curdgfrently learcxvning .ascxz..asdsdfcvxz
 - 💞️ I’zxcm lsdfooking tcxzcollvcvvboratsdce on ...
 - 📫 How to reach mexcv ...qwcxzxzcxzcasd
 jdfhfghsavxccxvxbvasdfasdf
