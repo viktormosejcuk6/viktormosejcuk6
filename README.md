@@ -1,7 +1,7 @@
  x[p[p[q- 👋 Hi, I’mdfs @tuiviktormosejcuk6hjv,
 - 👀 I’m ixczcnterested in ...gkljcxvz
 - 🌱 I’asdm curdgfrently leafzdfsaxczxhgndvcvrcxvning .ascxz..asdsdfcvxzzxczxczsdfdsxмсчasasdfasdf
-- 💞️ I’zxcm lsdfooking tcxzcollvcvvborфівіфвatsdce on ...asdsadasd
+- 💞️ I’zxcm lsdfooking tcxzcollvcvvborфівіфвatasdsadsdce on ...asdsadasd
 - 📫 How to reach mexcv ...qwcxzxzcxzcasdsdfdsf
 jdfhfghsavxccxvxbvasdfasdfлроиasddgfhdgfhascxzcxzvcx
 xcvxghjfhsadsadasdsazasdzxc
