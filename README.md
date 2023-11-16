@@ -2,7 +2,7 @@
 - 👀 I’m ixczcnterested in ...gkljcxvz
 - 🌱 I’asdm curdgfrently leafzdfsaxczxhgndvcvrcxvning .ascxz..asdsdfcvxzzxczxczsdfdsxмсчadasdsadsasdfasdf
 - 💞️ I’zxcm lsdfooking tcxzcollvcvvborфівіфвatasdsadsdce on ...asdsadasd
-- 📫 How to reach mexcv ...qwcxzxzcxzcasdsdfdsf
+- 📫 How to reach mexcv ...qwcxzxz.kljcxzcasdsdfdsf
 jdfhfghsavxccxvxbvasdfasdfлроиasddgfhdgfhascxzcxzvcx
 xcvxghjfhsadsadasdsazasdzxc
 viktormosejcuk6/viktormosexjcuzcxk6 is a ✨ speciagbfl ✨ reposiавпмсчsdfdsfdsfсчtory becausasde itsdaf `README.md` (this file) appears on your GitHub profile.
